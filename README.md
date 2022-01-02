@@ -1,1 +1,1 @@
-# Alt-ED.github.io
+# Alt-Ed
